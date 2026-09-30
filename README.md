@@ -1,0 +1,2 @@
+# premium-platinum-001-platinum-palladium-sensitizer
+Tired of inconsistent platinum prints due to forgotten mixing ratios or misplaced notes? The Platinum Palladium Sensitizer Mix Hub brings order to your chemical chaos.  Centralizes all your sensitizer formulas, tracks batch history with precise details, and includes a built-in dilution calculator to scale recipes effortlessly. This template elimina
